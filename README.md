@@ -3,4 +3,4 @@ For HUCtfer
 
 如何加入我们:
 
-email - aHVjdGZfYWRtaW5AMTYzLmNvbQ==
+email - <a href="#">aHVjdGZfYWRtaW5AMTYzLmNvbQ==</a>
