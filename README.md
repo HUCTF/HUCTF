@@ -1,5 +1,5 @@
 # HUCTF
-For HUCtfer
+For HUCTFER
 
 ## 如何加入我们:
 
