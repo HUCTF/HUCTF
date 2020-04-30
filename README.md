@@ -13,4 +13,5 @@ For HUCTFER
 3. HUCTF优秀成员
 
 若满足决定条件中的一条，我们会提出“邀请”
-email - <a href="#">aHVjdGZfYWRtaW5AMTYzLmNvbQ==</a>
+
+email - <a href="#">kiesbayi@gmail</a>
