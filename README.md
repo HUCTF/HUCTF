@@ -14,4 +14,4 @@ For HUCTFER
 
 若满足决定条件中的一条，我们会提出“邀请”
 
-email - <a href="#">kiesbayi@gmail</a>
+email - <a href="#">1290017556@qq.com</a>
